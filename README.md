@@ -1,0 +1,1 @@
+Project for ENGLISH LANGUAGE FOR LINGUISTIC COMPUTING - Prof. Forchini and Poli
